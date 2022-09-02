@@ -1,4 +1,4 @@
-- heyy I’m @OlgaTzedaki
+- heyy I’m @OlgaTzedaki 👩🏼‍💻
 - I’m interested in literally everything under the sun! ranging from tech, to books, to music, to watching netflix ofc 
 - my latest obsession: fitness 
 - fav music genre: that's non-existent lol. My music taste is kinda all over the place 
