@@ -2,7 +2,7 @@
 - I’m interested in literally everything under the sun! ranging from tech, to books, to music, to watching netflix ofc 
 - my latest obsession: fitness 
 - fav music genre: that's non-existent lol. My music taste is kinda all over the place 
-- let's be friends on insta :) @olgaatzdk
+- let's be friends on insta :) @olgaatzedaki
 
 <!--- 🌱 I’m currently learning ... 
  💞️ I’m looking to collaborate on ...---->
